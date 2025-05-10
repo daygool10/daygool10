@@ -3,4 +3,4 @@
 * daygool
 * escritora y desenhista
 
-![](https://tenor.com/pt-BR/view/pink-cute-shine-glitter-bow-gif-13929901534448049876)
+![](https://tenor.com/pt-BR/view/10-gif-26117266)
