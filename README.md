@@ -1,7 +1,7 @@
-### . . . . . 🧡Welcome To My Perfil🧡 . . . . .
+### . . . . . 🧡bienvenido a mi perfil🧡 . . . . .
 
 * daygool
-* escritora e desenhista
-* 💍 uma vez flamengo...
+* escritora y desenhista
 
-![](https://media1.tenor.com/m/1IBjWZ5i8xMAAAAd/fnaf-five-nights-at-freddy%27s.gif)
+
+![](https://tenor.com/pt-BR/view/winx-club-enchantix-aisha-transformation-bubbles-gif-20069143)
