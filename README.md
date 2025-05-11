@@ -2,4 +2,4 @@
 
 * daygool
 * escritora y desenhista
-![](C:\Users\daian_ql1qzcv\Downloads\draculaura • monster high aesthetic.jpg)
+![](file:///C:/Users/daian_ql1qzcv/Downloads/draculaura%20%E2%80%A2%20monster%20high%20aesthetic.jpg)
